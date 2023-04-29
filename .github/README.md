@@ -14,14 +14,14 @@
 
 
 <h2 align="center">
-    𝄟🌹𝗙𝗜𝗭𝗔 𝗥𝗢𝗕𝗢𝗧🌹​​​​​𝄟​​​​​
+    𝄟🌹ƒιzα яοϐοτ🌹​​​​​𝄟​​​​​
 </h2>
 
 <p align="center">
   <img src="https://graph.org/file/901966b1a608ac7a57b26.jpg">
 </p>
 
-ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [𝄟ॐ❥𝗙𝗜𝗭𝗔🍷𝗥𝗢𝗕𝗢𝗧𝄟⃟🥀](https://t.me/FIZA_ROBOT)
+ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [𝄟ॐ❥ƒιzα яοϐοτ𝄟⃟🥀](https://t.me/FIZA_ROBOT)
 ━━━━━━━━━━━━━━━━━━━━
 
 
